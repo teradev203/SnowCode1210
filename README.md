@@ -1,11 +1,9 @@
-2022.04.01
-https://sendgb.com/TJfaFq7R9jM
+2022.04.17
+https://sendgb.com/MzAhVN4CYQ7
+https://sendgb.com/2pMz0Gb57Bm
+https://sendgb.com/l6jCKGFmrk8
 ###
-mine gmail:teardev203@gmail.com
+my gmail:teardev203@gmail.com
 skype:live:.cid.f495160e5ba97fb6
 ###
-If you use send.gb, you can notice via skype.
-but you should talk only about project.
-If you have others, you can use send.gb
-regards.
 
