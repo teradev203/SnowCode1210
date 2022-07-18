@@ -14,3 +14,7 @@ https://drive.google.com/file/d/1l_Gk-zxsgXBwjO2berDwgydUwRdvX5w-/view?usp=shari
 https://drive.google.com/file/d/1hNAmZQkF_xKhAppfuNDHsLlFKaXqa51R/view?usp=sharing
 6. SM BIOS
 https://drive.google.com/file/d/11zih57DG70FL55TDFtlKYmJvZHdPTJz6/view?usp=sharing
+
+
+####Special Data List(Don't remove) #########
+https://drive.google.com/file/d/1SqlDnvNuuEz8NNODrug01-HaGUwnGlgd/view?usp=sharing
